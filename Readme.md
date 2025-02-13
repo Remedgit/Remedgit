@@ -1,3 +1,3 @@
 # Hi there
 I'm tejat (Remedgit)
-凭一己之力干黑砖两台Mate40Pro（
+<a href="https://shop.vivo.com.cn/product/10010446">购买iQOO Neo10</a>
